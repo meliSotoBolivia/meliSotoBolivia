@@ -1,4 +1,4 @@
-### Hi there 👋 ### MI NOMBRE ES MELINA SOTO CARI
+### Hi there 👋  MI NOMBRE ES MELINA SOTO CARI
 
 _Soy de Villazon provincia de Potosi naci el 22/03/2004 en la ciudad de Salta actualmente vivo en Tarija_
 
